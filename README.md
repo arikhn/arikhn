@@ -1,3 +1,3 @@
 ## Hello there :wave:
 
-![RiK](https://github.com/ArikHn/ArikHn/assets/57228859/f072fcdc-97bd-4a2c-a081-84a752675453)
+![RiK](https://github.com/user-attachments/assets/2274a20b-1a80-47e1-a391-e6a8f1062969)
